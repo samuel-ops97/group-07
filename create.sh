@@ -1,0 +1,4 @@
+chichi
+sam
+temi
+joys
